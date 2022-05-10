@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 I’m currently working on improving my coding skills and would appreciate your help/collaboration. I hope to improve to the level of developing innovative products for the aviation and tourism industries, as well as other industries in a short while from now. Thank you. 
 
 <!--
 **Andrew-Ochagla/Andrew-Ochagla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
